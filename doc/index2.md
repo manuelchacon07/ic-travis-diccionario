@@ -1,1 +1,1 @@
-Esto es una prueba con falta de ortografia
+Esto es una prueba con falta de ortografía
